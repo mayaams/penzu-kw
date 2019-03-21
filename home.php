@@ -1,1 +1,2 @@
-cek sama ayam
+cekkkkkkkkkkk mayaaa
+cek bihun
